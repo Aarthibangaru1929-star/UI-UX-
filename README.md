@@ -1,2 +1,3 @@
 # UI-UX-
-create new ideas
+Hi,i am Aartibangaru
+i am student of bachelor of Technology
